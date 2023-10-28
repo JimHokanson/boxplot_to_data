@@ -1,0 +1,1 @@
+Bramley_2021.png     Bramley, J. L., P. R. Worsley, D. L. Bader, C. Everitt, A. Darekar, L. King, and A. S. Dickinson. “Changes in Tissue Composition and Load Response After Transtibial Amputation Indicate Biomechanical Adaptation.” Annals of Biomedical Engineering 49, no. 12 (December 2021): 3176–88. https://doi.org/10.1007/s10439-021-02858-0.
